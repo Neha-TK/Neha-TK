@@ -3,8 +3,8 @@
 
 
 ### 🔗 Connect With Me  
-www.linkedin.com/in/nehatk2004
-https://github.com/Neha-TK 
+LinkedIn : www.linkedin.com/in/nehatk2004  
+Github : https://github.com/Neha-TK 
 
 
 
